@@ -21,7 +21,7 @@ MGS-144 is available for commercial deployment under proprietary license.
 - Full portfolio acquisition
 - $20M full exit — 144 Hearth Equity by Design LLC
 - TVG carried as separate royalty instrument
-- Contact: dgodwin1776@gmail.com
+- Contact: 144hearthsentinelsecurity@gmail.com
 
 ---
 
